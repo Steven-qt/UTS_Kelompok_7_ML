@@ -1,4 +1,4 @@
-Kelompok 7
+Kelompok 7:
 Moza Naila Syakira  (230935606026)(Ketua)
 Rangga              (230935608316)
 Steven              (230935604487)
